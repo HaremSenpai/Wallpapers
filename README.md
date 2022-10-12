@@ -1,1 +1,1 @@
-# Cool images I found in the internet
+# Cool images I got in the internet
